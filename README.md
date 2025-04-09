@@ -1,2 +1,2 @@
 # Isaac-rai
-Hey its me isaac 
+Hey its me isaac.
